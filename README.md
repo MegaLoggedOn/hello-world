@@ -1,3 +1,2 @@
 # hello-world
 The start of earning bigmonies.
-MegaLoggedOnMegaLoggedOnMegaLoggedOnMegaLoggedOnMegaLoggedOnMegaLoggedOnMegaLoggedOnMegaLoggedOnMegaLoggedOnMegaLoggedOn
